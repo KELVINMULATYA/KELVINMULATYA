@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KELVINMULATYA
+- 👀 I’m interested in software engineering 
+- 🌱 I’m currently learning computer science at kabarak University 
+- 💞️ I’m looking to collaborate with great tech companies 
+- 📫 How to reach me :TELL 0112868032 Gmail:kmulatya@kabarak.ac.ke
